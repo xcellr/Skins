@@ -3,3 +3,4 @@ all the skins ive used
 
 
 [Nm1](https://cdn.discordapp.com/attachments/672200896146309136/1171950528578736148/NM.osk?ex=655e8afb&is=654c15fb&hm=edacef36173d4c30497b387c99e889974262135a90704e7b7224576f9c3c85b8&)
+![](https://cdn.discordapp.com/attachments/672200896146309136/1171950180044648458/screenshot1459.jpg?ex=655e8aa8&is=654c15a8&hm=e491c31d83b64498875fe53aa9ea81d216108b8f33bc0f0c73345c515c40d9ba&)
