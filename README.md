@@ -1,6 +1,36 @@
 # Skins
-all the skins ive used
+all the skins ive used over the years. 
 
+2021 till now.
 
-[Nm1](https://cdn.discordapp.com/attachments/672200896146309136/1171950528578736148/NM.osk?ex=655e8afb&is=654c15fb&hm=edacef36173d4c30497b387c99e889974262135a90704e7b7224576f9c3c85b8&)
+Sorting: MOST recent 1st, LEAST recent Last.
+
+		        
+
+# [NM](https://cdn.discordapp.com/attachments/672200896146309136/1171950528578736148/NM.osk?ex=655e8afb&is=654c15fb&hm=edacef36173d4c30497b387c99e889974262135a90704e7b7224576f9c3c85b8&)
 ![](https://cdn.discordapp.com/attachments/672200896146309136/1171950180044648458/screenshot1459.jpg?ex=655e8aa8&is=654c15a8&hm=e491c31d83b64498875fe53aa9ea81d216108b8f33bc0f0c73345c515c40d9ba&)
+
+# [NM - 2](https://cdn.discordapp.com/attachments/672200896146309136/1171953455510863902/NM_-_2.osk?ex=655e8db5&is=654c18b5&hm=2ec1426ad8928440d97ecc1877fb43805ba26f94b328968b407ed0bbf1200aba&)
+![](https://cdn.discordapp.com/attachments/672200896146309136/1171955428683415572/screenshot1463.jpg?ex=655e8f8c&is=654c1a8c&hm=6ca206c44b96accb5f1c80002941d921bc5b349dd0952f334586a118af723023&)
+
+# [HD](https://cdn.discordapp.com/attachments/672200896146309136/1171952483304734740/HD.osk?ex=655e8ccd&is=654c17cd&hm=0c9ab1ff029361ef15824eab0d593463ed0fa77239f4d8d892183c5d97c57dd7&)
+![](https://cdn.discordapp.com/attachments/672200896146309136/1171952455639122041/screenshot1462.jpg?ex=655e8cc7&is=654c17c7&hm=bbdcc17c2ca53942d7f090461c4c759e999da2e7cf64788df90c049c8450ffd8&)
+
+# [DT](https://cdn.discordapp.com/attachments/672200896146309136/1171954855661809755/DT.osk?ex=655e8f03&is=654c1a03&hm=0149752bb455b4c8343b045f4af228c961cba6524708b2960363f7749e179ba0&)
+![](https://cdn.discordapp.com/attachments/672200896146309136/1171955080270970940/screenshot1469.jpg?ex=655e8f39&is=654c1a39&hm=4c1399b799a9413023074286ffa5a49ebba7c97a68bbec1809ed94845bef1b19&)
+
+# [WALTER 1.5](https://cdn.discordapp.com/attachments/672200896146309136/1171959373384384562/WALTER_1.5.osk?ex=655e9338&is=654c1e38&hm=0fdc59ab248e20031bdd6397dee8255ce9c42acda6812e8807c6f97890742da3&)
+![](https://cdn.discordapp.com/attachments/672200896146309136/1171959275141210162/screenshot1474.jpg?ex=655e9321&is=654c1e21&hm=eeaf71d299ebc96d9e581c72df41764025b906b08541695d20c4b4139b7ac0c4&)
+
+# [Walter 1.3 - Rafit edit](https://cdn.discordapp.com/attachments/672200896146309136/1171961326491410604/walter_1.3_-_Rafis_edit.osk?ex=655e950a&is=654c200a&hm=36d1b500a11f5c36306e640a20d0ae5a8378bc8b9d38efe677ff9e1f75591b17&)
+![](https://cdn.discordapp.com/attachments/672200896146309136/1171961060962619402/screenshot1480.jpg?ex=655e94ca&is=654c1fca&hm=86e0bcc8c1ade5088179d8ec1c4b0a4a47359b2f0467dec0e29c7374bc2d244b&)
+
+# [Walter 1.3 - idke edit](https://cdn.discordapp.com/attachments/672200896146309136/1171963435253256243/Walter_1.3_-_idke_edit.osk?ex=655e9700&is=654c2200&hm=1129654236eca21a2606e0ff4329866f3e85101b9759804ef6d6e39c158df9d2&)
+![](https://cdn.discordapp.com/attachments/672200896146309136/1171962985607082045/screenshot1483.jpg?ex=655e9695&is=654c2195&hm=e72bd8302caa7d2d4b2a6f935742a215da1ee6d1a7516bd8201bef3763aecc17&)
+
+# [Walter 1.2](https://cdn.discordapp.com/attachments/672200896146309136/1171964862260318228/Walter_1.2.osk?ex=655e9855&is=654c2355&hm=3b5ccd01bd0d45fba118d3212f0d7d38f6dbe9d7046b36c42abde63ef9164b4c&)
+![](https://cdn.discordapp.com/attachments/672200896146309136/1171964577504841770/screenshot1488.jpg?ex=655e9811&is=654c2311&hm=2fa250b1f8e3ca844c95ce51cbf32bd7b916c086b9be808e3cfe530680b4cbf9&)
+
+
+
+
